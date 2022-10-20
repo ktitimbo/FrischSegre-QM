@@ -1,0 +1,1 @@
+# FrischSegre-QM
